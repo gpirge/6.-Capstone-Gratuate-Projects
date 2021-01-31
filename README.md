@@ -1,1 +1,1 @@
-# 6.-Capstone-Gratuate-Project
+Capstone Graduate Projects are here.
